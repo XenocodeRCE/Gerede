@@ -1,0 +1,9 @@
+- https://tome.app/la-caverne-de-platon/exploring-freuds-theory-of-the-unconscious-clcgdlgw36gso583au1yvwlvw
+- https://tome.app/la-caverne-de-platon/explorant-linconscient-la-reponse-des-sciences-cognitives-a-la-theorie-freudienne-clcgdtjn76cov8p3a3bmab3wv
+- https://tome.app/la-caverne-de-platon/la-conscience-une-adaptation-biologique-pour-communiquer-clcge5cgh6kyr733afn2035e9
+- https://tome.app/la-caverne-de-platon/levi-strauss-generer-des-mythes-a-partir-de-linconscient-clcgeeaee6l3z583awc8p3bto
+- https://tome.app/la-caverne-de-platon/durkheim-collective-consciousness-and-the-absence-of-individual-religion-clcgemrkx6qiq6m3b0nvxxsep
+- https://tome.app/la-caverne-de-platon/la-langue-une-structure-qui-ne-reproduit-pas-le-reel-clcgf05hz6ocr583a27xkz4v5
+- https://tome.app/la-caverne-de-platon/aristote-et-la-specificite-humaine-une-main-un-destin-clcgg95t46rjq3b3am54tyf9d
+- https://tome.app/la-caverne-de-platon/explorant-la-separation-entre-corps-et-esprit-descartes-revisite-par-alain-clcggpco66p1ycs3asmyj3ld5
+- https://tome.app/la-caverne-de-platon/liberte-de-fait-vs-liberte-de-droit-leibnizs-distinction-clcggy0yu1uqqad3absporg7a
