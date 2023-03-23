@@ -4,12 +4,13 @@
   - L’océan Indien : rivalités régionales et coopérations internationales.
   - Le détroit de Malacca : un point de passage majeur et stratégique.
   - La France : une puissance maritime ?
-- Thème 2 : Dynamiques territoriales, coopérations et tensions dans la mondialisation
+- Thème 2 : Dynamiques territoriales, coopérations et tensions dans la mondialisation 
   - Les îles de la Caraïbe et des Antilles : entre intégration régionale et ouverture mondiale.
   - La Russie, un pays dans la mondialisation : inégale intégration des territoires, tensions et coopérations internationales.
   - Les corridors de développement en Amérique latine : un outil d’intégration et de désenclavement.
   - L’Asie du Sud-Est : inégalités d’intégration et enjeux de coopération
   - La France : un rayonnement international différencié et une inégale attractivité dans la mondialisation.
+    - → Michel Foucault, *Surveiller et punir* 
 - Thème 3 : L’Union européenne dans la mondialisation : des dynamiques complexes
   - L’Allemagne : une puissance européenne aux territoires inégalement intégrés dans la mondialisation.
   - Les transports dans l’Union européenne : un outil d’ouverture, de cohésion et de compétitivité.
