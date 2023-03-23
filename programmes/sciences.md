@@ -1,13 +1,20 @@
 - Thème 1 : Science, climat et société
   - 1.1 L’atmosphère terrestre et la vie
+    - → Aristote, *Des parties des animaux* 
+    - → Descartes, *Traité des passions*
   - 1.2 La complexité du système climatique
+    - → Thalès 
   - 1.3 Le climat du futur
   - 1.4 Énergie, choix de développement et futur climatique
+    - Hans Jonas
 - Thème 2 : Le futur des énergies
   - 2.1 Deux siècles d’énergie électrique
+    - Leibniz 
   - 2.2 Les atouts de l’électricité
   - 2.3 Optimisation du transport de l’électricité
   - 2.4 Choix énergétiques et impacts sur les sociétés
+    - → Heidegger, *La question de la technique* (extrait centrale hydroélectrique)
+    - → Simondon, *Du mode d'existence des objets techniques*
 - Thème 3 : Une histoire du vivant
   - 3.1 La biodiversité et son évolution
   - 3.2 L’évolution comme grille de lecture du monde
