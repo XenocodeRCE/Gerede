@@ -1,9 +1,13 @@
 - Thème 1 : Fragilités des démocraties, totalitarismes et Seconde Guerre mondiale (1929-1945) 
   - Chapitre 1. L’impact de la crise de 1929 : déséquilibres économiques et sociaux
+    - → Smith, *La richesse d'une nation* 
   - Chapitre 2. Les régimes totalitaires
+    - → Arendt, *Les origines du totalitarisme* 
   - Chapitre 3. La Seconde Guerre mondiale
+    - → Carl Schmitt
 - Thème 2 : La multiplication des acteurs internationaux dans un monde bipolaire (de 1945 au début des années 1970)
   - Chapitre 1. La fin de la Seconde Guerre mondiale et les débuts d’un nouvel ordre mondial
+    - Kant, *Vers la paix perpétuelle* 
   - Chapitre 2. Une nouvelle donne géopolitique : bipolarisation et émergence du tiers-monde
   - Chapitre 3. La France : une nouvelle place dans le monde
 - Thème 3 : Les remises en cause économiques, politiques et sociales des années 1970 à 1991
